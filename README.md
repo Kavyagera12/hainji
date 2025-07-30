@@ -1,4 +1,3 @@
 # info
 About me
-private number block ku hai 
-are are are ye kya thaa
+Mai ghar jaa rahi hu mummy ki tabiyat kharab hai
